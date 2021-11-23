@@ -1,1 +1,0 @@
-# skochylyas.github.io
